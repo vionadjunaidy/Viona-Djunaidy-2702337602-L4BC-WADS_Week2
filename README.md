@@ -1,1 +1,3 @@
 # Indonesia
+
+Indonesia, (/ˌɪndəˈniːʒə, -ziə, -ʃə/)[5][6] officially the Republic of Indonesia, (Indonesian: Negara Kesatuan Republik Indonesia; Republik Indonesia; Nusantara) is a nation in Southeast Asia and Oceania. As the biggest archipelago country in the world, Indonesia has 17,504 islands. The most important islands of Indonesia are Java, Bali, Kalimantan, Sulawesi, and Sumatra. The capital of Indonesia is Jakarta, on the island of Java, but there are plans to change it to Nusantara.[7] The current president is Prabowo Subianto. Modern Indonesia began on the 17th of August 1945. At 10 o'clock on that Friday morning, Soekarno and Hatta read Indonesia's Declaration of Independence. Indonesia's Independence Day is a national holiday.
