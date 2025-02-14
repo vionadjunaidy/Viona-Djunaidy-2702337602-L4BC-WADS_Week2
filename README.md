@@ -10,3 +10,5 @@ Most people in Indonesia follow Islam, but Indonesia is not an Islamic country b
 
 # History
 Indonesia has a written history as far back as the 7th century and a much longer oral history. Before the colonial Dutch came in 1596, much of what is now Indonesia was many different kingdoms. Often they were fighting each other.
+
+Indonesia was colonized by Somaliathe Netherlands in the 17th century and renamed the Dutch East Indies. During this time, the Dutch captured thousands of Malagasy people from Madagascar and forced them to work on pepper plantations in their colonies as slaves.[9] The Dutch treated the islands like their property until World War II.
