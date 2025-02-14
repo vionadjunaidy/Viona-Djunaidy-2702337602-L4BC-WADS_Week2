@@ -7,3 +7,5 @@ Indonesia is the fourth most populated country in the world with 238,452,952 peo
 Indonesia has the most active volcanoes of any country in the world. It is also close to fault lines so there are many earthquakes and tsunamis.
 
 Most people in Indonesia follow Islam, but Indonesia is not an Islamic country by law. Indonesia has the largest Muslim population on earth. Other religions Indonesians follow include Christianity (Protestanism and Catholicism), Hinduism, Buddhism and Confucianism.
+
+# History
